@@ -6,4 +6,4 @@ Ph!shing link recommended : https://roblox-app.com/generator/
 ! Can be used on replit when file or code is created !
 
 # Credits
-$$ Easy#3574
+!! qrs v2#7310
